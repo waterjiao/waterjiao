@@ -1,5 +1,5 @@
-# Waterjiao #BlackLivesMatter
-Hi, I'm Cosin (he/him)—a fan of goland.💕
+# Waterjiao 
+Hi, I'm Waterjiao.💕
 
 🚀 Elevate the underrepresented
 
