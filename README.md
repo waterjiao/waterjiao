@@ -1,16 +1,14 @@
-### Hi there 👋
+# Waterjiao #BlackLivesMatter
+Hi, I'm Cosin (he/him)—a fan of goland.💕
 
-<!--
-**waterjiao/waterjiao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🚀 Elevate the underrepresented
 
-Here are some ideas to get you started:
+## How I work
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+## Get in touch
+- Personal site: https://waterjiao.github.io
+
+## Oakland orgs to donate to #BLM
+- []()
+
