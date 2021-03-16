@@ -7,7 +7,7 @@ Hi, I'm Waterjiao.💕
 
 
 ## Get in touch
-- Personal site: https://waterjiao.github.io
+- Personal site: 
 
 ## Oakland orgs to donate to #BLM
 - []()
